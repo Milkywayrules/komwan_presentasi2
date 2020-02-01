@@ -1,1 +1,0 @@
-komwan_presentasi2
